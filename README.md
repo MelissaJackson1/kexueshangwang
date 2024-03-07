@@ -1,4 +1,4 @@
-ChatGPT注册教程（完整指南）：[ChatGPT注册教程](https://github.com/xiaoming2028/PAC/wiki/ChatGPT%E6%B3%A8%E5%86%8C%E6%95%99%E7%A8%8B%EF%BC%88%E5%AE%8C%E6%95%B4%E6%8C%87%E5%8D%97%EF%BC%89)
+ChatGPT注册教程（完整指南）：[ChatGPT注册教程](https://github.com/MelissaJackson1/kexueshangwang/wiki/ChatGPT%E6%B3%A8%E5%86%8C%E6%95%99%E7%A8%8B%EF%BC%88%E5%AE%8C%E6%95%B4%E6%8C%87%E5%8D%97%EF%BC%89)
 
 推荐翻墙机场是信息差，不了解的人很容易被推荐到很垃圾的机场。翻墙机场就一句话：**一分钱一分货！**
 
